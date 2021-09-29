@@ -1,4 +1,4 @@
-# TheTigrayGenocide
+# The Tigray Genocide
 A perspective on the current events in East Africa
 ## What is happening in Ethiopia?
 For over a year now, the Ethiopian Tigray ethnic group has been in constant conflict with the Ethiopian government. Innocent women have been raped, children starved, and many left homeless. 
