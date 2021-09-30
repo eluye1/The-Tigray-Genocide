@@ -9,4 +9,4 @@ With peace made between Eritrean "President" Isaias Afwerki and Ethiopian Prime 
 <br>![Dictator Isaias Afwerki](https://api.creativecommons.engineering/v1/thumbs/028b72db-e108-4bef-914b-f367e350e93b)
 <br>Dictator Isaias Afwerki
 <br>
-<br>For more information, check out [Ethiopia's Tigray War](https://www.bbc.com/news/world-africa-54964378)
+### <br>For more information, check out [Ethiopia's Tigray War](https://www.bbc.com/news/world-africa-54964378)
