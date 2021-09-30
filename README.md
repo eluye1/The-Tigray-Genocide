@@ -5,3 +5,4 @@ For over a year now, the Ethiopian Tigray ethnic group has been in constant conf
 ## How is Eritrea involved?
 With peace made between Eritrean "President" Isaias Afwerki and Ethiopian Prime Minister Abiy Ahmed, Eritrean soldiers have supported the Ethiopian government in the war with Tigray. 
 For more information, check out [Ethiopia's Tigray War](https://www.bbc.com/news/world-africa-54964378).
+![Boy Feeding Cow!](https://live.staticflickr.com/65535/48125853213_569eb19005.jpg)
