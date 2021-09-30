@@ -1,7 +1,7 @@
 # The Tigray Genocide
 A perspective on the current events in East Africa
 ## What is happening in Ethiopia?
-For over a year now, the Ethiopian Tigray ethnic group has been in constant conflict with the Ethiopian government. Innocent women have been raped, the innocent starve, and many have been left homeless. 
+For over a year now, the Ethiopian Tigray ethnic group has been in constant conflict with the Ethiopian government. Innocent women have been raped, the both children and adults starve, and many have been left homeless. 
 <br>![Boy Feeding Cow!](https://live.staticflickr.com/65535/48125853213_569eb19005.jpg)
 <br>Boy feeds cow in Ethiopian Tigray Region (Image created by International Livestock Research Institute)
 ## How is Eritrea involved?
